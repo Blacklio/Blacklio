@@ -2,7 +2,7 @@
 - 👀 I’m interested in software engineering 
 - 🌱 I’m currently learning SE and marketing
 - 💞️ I’m looking to collaborate on projects
-- 📫 How to reach me through here. Telegram @justelias21  
+- 📫 How to reach me through here. Telegram @justelias21 Instagram @_anonymous_xxi Twitter @_Blacklio 
 - 
 
 <!---
